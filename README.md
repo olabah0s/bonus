@@ -1,9 +1,9 @@
 # Olabahis Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-# [Olabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
-# [Olabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
-# [Olabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
-# [Olabahis Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Olabahis Giriş İçin Tıklayınız](https://winzhub.org)
+# [Olabahis Giriş İçin Tıklayınız](https://winzhub.org)
+# [Olabahis Giriş İçin Tıklayınız](https://winzhub.org)
+# [Olabahis Giriş İçin Tıklayınız](https://winzhub.org)
 
 <br>
 
